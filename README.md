@@ -1,1 +1,1 @@
-fart based perfumes
+fart scent based perfumes
